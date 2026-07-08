@@ -1,0 +1,1 @@
+# Peta-Rasio-Jenis-Kelamin-Gunung-Kidul
